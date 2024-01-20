@@ -1,1 +1,0 @@
-# turushag.github.io
